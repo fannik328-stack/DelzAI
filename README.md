@@ -1,0 +1,2 @@
+# DelzAI
+Ne znayu
